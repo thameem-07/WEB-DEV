@@ -1,2 +1,1 @@
-I am a tech enthusiast
-😏😏😏😏😏😏
+TECH ENTHUSIAST 🫪
